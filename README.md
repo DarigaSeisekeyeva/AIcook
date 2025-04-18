@@ -8,3 +8,5 @@
 ![image](https://github.com/user-attachments/assets/3453a7ed-57eb-4687-b33b-5dbc58140c35)
 ![image](https://github.com/user-attachments/assets/347142e8-3de7-4a78-a8e4-eaee12285297)
 ![image](https://github.com/user-attachments/assets/e57e6eb9-7e43-486c-868f-0d9191a50652)
+
+Created by Seisekeyeva Dariga, Bazarova Zarema, Zhalgassova Saniya.
